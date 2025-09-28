@@ -10,4 +10,4 @@ Tive a oportunidade de criar planilhas para gestão de caixa e venda de produtos
 
 - 🤔 Caso você tenha alguma ideia que acha que posso gostar de experimentar ou queira compartilhar comigo, fique a vontade para entrar em contato!
 
---> Meu linkedin: www.linkedin.com/in/jessicavelosogomes
+
